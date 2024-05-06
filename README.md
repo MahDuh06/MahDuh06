@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MahDuh06
+- 👋 oiii, I’m @MahDuh06
 - 👀 I’m interested in pop
 - 🌱 I’m currently learning ...
 - - 😄 Pronouns: ela
